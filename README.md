@@ -1,5 +1,5 @@
 Hi I,m @Hacked1606- 👋 
-I,m interested in hackerlik and pilot
+I,m interested in hackerlik and pilotluqla
 
 I,m currenlty learning hackerlik 
 - 💞️ I’m looking to collaborate on airbus
