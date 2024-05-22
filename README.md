@@ -1,4 +1,4 @@
-Hi I,m @Hacked1606- 👋 Hi, I’m @Hacked1606
+Hi I,m @Hacked1606- 👋 
 I,m interested in hacked and pilot
 
 I,m currenlty learning hackerlik 
