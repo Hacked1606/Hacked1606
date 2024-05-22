@@ -3,7 +3,7 @@ I,m interested in hacked and pilot
 
 I,m currenlty learning ...- 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on airbus
-- 📫 How to reach me: heç bir şəklidə
+- 📫 How to reach me: heç bir şəklidə 
 - 😄 Pronouns: nursimanın gülüşü,gözləri,iyi,gözləri
 - ⚡ Fun fact: nursima ilə oldugum vaxtlar
 
